@@ -1,1 +1,1 @@
-# IntroMacroecnomicsForTurkey
+# IntroMacroeconomicsForTurkey
